@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Buzzy321
-- 👀 I’m interested in programming
+- 👀 I’m interested in programming and modding
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on
 - 📫 How to reach me discord Clone0121#3941
